@@ -1,0 +1,10 @@
+---
+published: true
+title: Il y a maintenant A-Live Streaming site adulte "Cam" pour la réalité virtuelle, The Future Is Now
+layout: post
+---
+Premièrement, il y avait des magazines nues, maintenant, ces magazines nues même plus montrent la nudité. Puis il y a eu la vidéo pour adultes, qui a été suivie par l'avènement de la pornographie sur Internet. Cela a conduit à l'avènement de choses comme la pornographie interactive, porno 3D, puis sites 'cam adulte »où les filles coulent vivent eux-mêmes faire les choses à la caméra. Eh bien, aujourd'hui, l'industrie a pris un petit pas pour la pornographie, et un bond de géant pour l'humanité lorsque le site a été lancé CamSoda: premier site de came de la réalité virtuelle dans le monde. Ceci est un service NSFW, mais les images de ce poste et d'information sont tous 100% sûr pour le travail, il suffit de faire attention en cliquant sur sur le nouveau site.
+
+Et avec ce communiqué de presse et le lancement ultérieur de CamSoda le monde ne sera plus jamais la même. Tout ce qu'il faut pour faire l'expérience du contenu réalité adulte virtuelle en direct est un casque et un téléphone, et vous voilà prêt à partir. Imaginez si les premiers ingénieurs informaticiens étaient encore là aujourd'hui pour voir ce lieu de se vautrer loin sur des îles éloignées penser à des façons de dépenser leurs milliards de dollars, ils seraient complètement époustouflés par le fait qu'il n'y a pas une expérience réalité porno virtuelle en direct qui peuvent être accessibles à partir de n'importe quel smartphone.
+
+Ils voulaient en fait se balancer par les bureaux BroBible la semaine dernière et nous donner une démonstration, mais malheureusement, j'était dans le processus de déplacement et n'a pas été en mesure de faire le travail de synchronisation. La prochaine fois peut-être. Quoi qu'il en soit, pour en savoir plus sur la façon d'obtenir un casque vous-même et / ou comment fonctionne réellement CamSoda tête sur plus de WWWdotYOUTUBEdotcom et commencer en cliquant autour!
