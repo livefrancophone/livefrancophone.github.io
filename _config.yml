@@ -1,0 +1,6 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://livefrancophone.github.io
+title: Live Franco Phone Blog
+paginate: 10
